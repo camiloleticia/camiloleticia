@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @camiloleticia
+- 👀 I’m interested in  aprender a programar em novas linguagens
+- 🌱 I’m currently learning  a programar recentemente a linguagem de scrath
